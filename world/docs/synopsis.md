@@ -1,0 +1,5 @@
+# Synopsis
+
+After witnessing her sister's death two years ago, *MC*'s journey of grief has been a struggle. Through fits of anger, doubt, and depression, *MC* can't help but bargain over what happened in the past. Unable to cope, she wishes to trade places with her late sibling. *MC*'s grief is so strong, that Bargaining himself decides to manifest and make a deal with her. While he can't manipulate the dead, Bargaining promises to take away the anguish that plagues *MC*. Without thinking, she agrees, but gets more than she bargained for.
+
+Not only were her feelings of anguish taken, but also her right to acceptance and happiness. One more caveat, *MC* now sees the negative feelings attaching themselves to everybody. Guilt, anxiety, stress, you name it, *MC* can interact with all the devils poisoning people's minds. Emotionless and with her new found ability, *MC* vows to destroy these monsters, in order to give everyone the peace and acceptance that she can no longer have.

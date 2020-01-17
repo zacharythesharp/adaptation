@@ -1,0 +1,4 @@
+site_name: TBD
+nav:
+        - Synopsis: synopsis.md
+        - Characters: characters.md
